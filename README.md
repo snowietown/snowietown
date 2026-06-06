@@ -18,4 +18,5 @@ i have 5012 reasons why i love him
 
 
 i very rarely accept friend requests or give out socials, dont take it personal <3
+
 literally dont include me in dumb pt drama.. i literally js sit for funs!
