@@ -1,4 +1,8 @@
-i have 5012 reasons why i love him
+i very rarely accept friend requests or give out socials, dont take it personal <3
+
+my strawpage is formatted best on computers only!
+
+literally dont include me in dumb pt drama.. i literally js sit for funs!
 
 
 
@@ -17,6 +21,5 @@ i have 5012 reasons why i love him
 
 
 
-i very rarely accept friend requests or give out socials, dont take it personal <3
+i have 5012 reasons why i love him
 
-literally dont include me in dumb pt drama.. i literally js sit for funs!
