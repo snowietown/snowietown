@@ -13,7 +13,8 @@ literally dont include me in dumb pt drama.. i literally js sit for funs!
 ![5012](https://github.com/user-attachments/assets/a5529a37-c7c6-47ca-b86e-f6da2fa2a846)
 
 
-<img width="344" height="551" alt="sillyyyy" src="https://github.com/user-attachments/assets/ed283891-dead-4c62-86e9-84d111eb5681" />
+<img width="525" height="528" alt="sillies" src="https://github.com/user-attachments/assets/715a98d7-982e-4752-8284-f55dabbc9d94" />
+
 
 
 
