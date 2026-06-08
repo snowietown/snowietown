@@ -35,6 +35,9 @@ i have 5012 reasons why i love him
 
 <img width="99" height="56" alt="nintedowii" src="https://github.com/user-attachments/assets/9a54ff2e-f876-4dc9-b6ec-12e933819bb9" /> <img width="99" height="56" alt="tumblr_26e8c6e5dfd08562c411a0776d796a75_9f8fd841_100" src="https://github.com/user-attachments/assets/831268e1-6cb9-4b41-bb28-c065428c974a" /> <img width="99" height="56" alt="icollectplushies" src="https://github.com/user-attachments/assets/af99cb5c-e89e-49e9-8fa5-d1483853705d" />
 
+<img width="99" height="56" alt="lps1" src="https://github.com/user-attachments/assets/0e292205-96ee-4a9d-803b-467122f6f64c" /> <img width="99" height="56" alt="0383b620_original" src="https://github.com/user-attachments/assets/dac300f9-242c-4a09-8685-896bd295e847" /> <img width="99" height="56" alt="lps2" src="https://github.com/user-attachments/assets/d4e8a0b6-5d30-467a-9cc6-1c64fc978727" />
+
+
 <img width="300" height="75" alt="sanrio-plush" src="https://github.com/user-attachments/assets/1c7d7394-d1a9-4dc6-b832-53880ce5ef85" />
 
 
