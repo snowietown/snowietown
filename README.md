@@ -19,3 +19,4 @@ literally dont include me in dumb pt drama.. i literally js sit for funs!
 
 i have 5012 reasons why i love him
 
+<img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/cea70825-886c-4154-b25d-67af75e2bee3" />
