@@ -4,7 +4,7 @@ my strawpage is formatted best on computers only!
 
 literally dont include me in dumb pt drama.. i literally js sit for funsies!
 
-and so, if i ever say/do smth u dont like, lemme know! 𖹭
+and so, if i ever say/do smth u dont like, send me a whisper! 𖹭
 
 
 
