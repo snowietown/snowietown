@@ -24,6 +24,9 @@ i have 5012 reasons why i love him
 <img width="125" height="83" alt="yayt" src="https://github.com/user-attachments/assets/fc5a2bb5-6593-4a98-86a2-e2161706244a" /> <img width="125" height="83" alt="dfv11ta-ad8aab5a-55ec-444f-834b-4f5ec7e89e90" src="https://github.com/user-attachments/assets/b5719a21-c9d8-4414-8de6-329d852fbfec" /> <img width="125" height="83" alt="ae" src="https://github.com/user-attachments/assets/812ff758-a817-4a0a-83a0-1882e0025aee" /> 
 
 
+<img width="99" height="55" alt="dcktmyb-25dd4c36-ebe8-4595-8108-f836b47be18d" src="https://github.com/user-attachments/assets/3a5f4b82-9624-4819-9424-89e4113354ef" /> <img width="99" height="55" alt="ddenv2u-f7a7cc1a-1ffb-4037-9ac9-4e30a83cc502" src="https://github.com/user-attachments/assets/c196a711-7b2b-4f1f-9098-f92d0f88a516" /> <img width="99" height="55" alt="dchx1mw-df42a315-90ff-42d8-8f59-9d1cbb45f414" src="https://github.com/user-attachments/assets/30c7a587-7f63-4edc-a303-6ae66180d359" />
+
+
 
 
 
