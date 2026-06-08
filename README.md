@@ -28,12 +28,12 @@ i have 5012 reasons why i love him
 
 <img width="99" height="55" alt="ddks4uc-432d772c-8cdc-486a-8d21-10be0e9fd7c9" src="https://github.com/user-attachments/assets/a607390d-6a8b-4e6b-b194-d14f98c0efa7" /> <img width="99" height="55" alt="dc2iibl-a7014485-d5a6-4154-ae08-a692b1595ab9" src="https://github.com/user-attachments/assets/abc8b17a-b8d1-437c-b6d1-fd5492b6784e" /> <img width="99" height="55" alt="da1mygv-595d1704-c607-4ffb-992a-98028652aa99" src="https://github.com/user-attachments/assets/0650b191-b007-45c2-b79d-964d790a480b" />
 
-<img width="300" height="75" alt="sanrio-plush" src="https://github.com/user-attachments/assets/1c7d7394-d1a9-4dc6-b832-53880ce5ef85" />
 
 <img width="150" height="84" alt="tumblr_33111db11a8f1d54405c044e15181bda_b8f4e8de_250" src="https://github.com/user-attachments/assets/5fa139a5-6c04-4d18-ab1d-750165f8841a" /> <img width="150" height="84" alt="tumblr_21e198d78a956f39077c064f5d080526_7423819f_250" src="https://github.com/user-attachments/assets/c31f5c3b-0b49-4665-ad5b-c03197077698" /> <img width="150" height="84" alt="tumblr_a576651f77872ac130fc22eb558e9e1d_0e62be5c_250" src="https://github.com/user-attachments/assets/fc32a20c-0839-46db-b485-88cd6107aaea" />
 
 <img width="99" height="56" alt="nintedowii" src="https://github.com/user-attachments/assets/9a54ff2e-f876-4dc9-b6ec-12e933819bb9" /> <img width="99" height="56" alt="tumblr_26e8c6e5dfd08562c411a0776d796a75_9f8fd841_100" src="https://github.com/user-attachments/assets/831268e1-6cb9-4b41-bb28-c065428c974a" /> <img width="99" height="56" alt="icollectplushies" src="https://github.com/user-attachments/assets/af99cb5c-e89e-49e9-8fa5-d1483853705d" />
 
+<img width="300" height="75" alt="sanrio-plush" src="https://github.com/user-attachments/assets/1c7d7394-d1a9-4dc6-b832-53880ce5ef85" />
 
 
 
