@@ -34,6 +34,10 @@ i have 5012 reasons why i love him
 
 <img width="99" height="56" alt="nintedowii" src="https://github.com/user-attachments/assets/9a54ff2e-f876-4dc9-b6ec-12e933819bb9" /> <img width="99" height="56" alt="tumblr_26e8c6e5dfd08562c411a0776d796a75_9f8fd841_100" src="https://github.com/user-attachments/assets/831268e1-6cb9-4b41-bb28-c065428c974a" /> <img width="99" height="56" alt="icollectplushies" src="https://github.com/user-attachments/assets/af99cb5c-e89e-49e9-8fa5-d1483853705d" />
 
+<img width="99" height="56" alt="d83268ae_original" src="https://github.com/user-attachments/assets/e9550db2-6ebb-4f42-a7fc-cbf063bd205c" /> <img width="99" height="56" alt="hummingmint" src="https://github.com/user-attachments/assets/9b27ac51-ac17-4cd8-b1d0-debca0337a8e" /> <img width="98" height="55" alt="sugarbunnies" src="https://github.com/user-attachments/assets/3c921880-924b-492c-a505-9ccafbe07968" />
+
+
+
 
 <img width="150" height="84" alt="tumblr_33111db11a8f1d54405c044e15181bda_b8f4e8de_250" src="https://github.com/user-attachments/assets/5fa139a5-6c04-4d18-ab1d-750165f8841a" /> <img width="150" height="84" alt="tumblr_21e198d78a956f39077c064f5d080526_7423819f_250" src="https://github.com/user-attachments/assets/c31f5c3b-0b49-4665-ad5b-c03197077698" /> <img width="150" height="84" alt="tumblr_a576651f77872ac130fc22eb558e9e1d_0e62be5c_250" src="https://github.com/user-attachments/assets/fc32a20c-0839-46db-b485-88cd6107aaea" />
 
