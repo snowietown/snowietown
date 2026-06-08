@@ -2,7 +2,8 @@ i very rarely accept friend requests or give out socials, dont take it personall
 
 my strawpage is formatted best on computers only!
 
-literally dont include me in dumb pt drama.. i literally js sit for funsies! 
+literally dont include me in dumb pt drama.. i literally js sit for funsies!
+and so, if i ever say/do smth u dont like, lemme know! 𖹭
 
 
 
