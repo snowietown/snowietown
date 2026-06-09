@@ -9,7 +9,8 @@
 
 
 
-<img width="58" height="48" alt="tumblr_m3q2ulXb0b1rodiav540" src="https://github.com/user-attachments/assets/a9c6cd72-b821-43df-85c9-1e85c0ad3033" />
+<img width="58" height="48" alt="tumblr_m3q2ulXb0b1rodiav540" src="https://github.com/user-attachments/assets/a9c6cd72-b821-43df-85c9-1e85c0ad3033" /> <img width="63" height="62" alt="tumblr_m3q3ebNBwD1rodiav540" src="https://github.com/user-attachments/assets/6d1e0c4d-417e-441a-bdde-36093170295a" />
+
 
 i very rarely accept friend requests or give out socials, dont take it personally <3
 
