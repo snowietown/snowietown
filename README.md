@@ -22,13 +22,6 @@ literally dont include me in dumb pt drama.. i literally js sit for funsies!
 and so, if i ever say/do smth u dont like, send me a whisper! & maybe we can be friends! 𖹭
 
 
-<img width="30" height="20" alt="tumblr_33502bea8bda7cf8cdd8d4d281713a65_962a5c5b_75" src="https://github.com/user-attachments/assets/d56f0e1b-d25a-4548-8f87-b8307131858a" />
-<img width="30" height="20" alt="tumblr_09019388f5f07f6e69f742ebe200693c_3fef0e5f_75" src="https://github.com/user-attachments/assets/be71f801-a78f-4c76-bbfa-794da93cf43a" />
-<img width="30" height="20" alt="tumblr_b0d5888188bfaa381d4c142fe900df25_4d44e2d5_75" src="https://github.com/user-attachments/assets/984a31ec-79e1-4c0e-9da4-7ef1a19404b8" />
-<img width="30" height="20" alt="tumblr_802706b841cda9b1b9276e1751f9b6df_41d28d0c_75" src="https://github.com/user-attachments/assets/484f23ef-1d3e-4057-969b-ba89adc47fd9" />
-<img width="30" height="20" alt="tumblr_23565ab1708dbce114410a04ead11d81_59daba5a_75" src="https://github.com/user-attachments/assets/f51159cf-0747-4fbe-9f23-c13e42411e48" />
-<img width="30" height="20" alt="tumblr_3daa03f1352fea2c6d5c49034d01d133_5a39c95c_75" src="https://github.com/user-attachments/assets/86dc24f8-8432-4fdc-ad89-d1f1dce91e31" />
-
 
 <img width="525" height="528" alt="sillies" src="https://github.com/user-attachments/assets/715a98d7-982e-4752-8284-f55dabbc9d94" />
 
