@@ -13,7 +13,8 @@
 
 
 
-<img width="58" height="48" alt="tumblr_m3q2ulXb0b1rodiav540" src="https://github.com/user-attachments/assets/a9c6cd72-b821-43df-85c9-1e85c0ad3033" /> <img width="63" height="62" alt="tumblr_m3q3ebNBwD1rodiav540" src="https://github.com/user-attachments/assets/6d1e0c4d-417e-441a-bdde-36093170295a" />
+<img width="58" height="48" alt="tumblr_m3q2ulXb0b1rodiav540" src="https://github.com/user-attachments/assets/a9c6cd72-b821-43df-85c9-1e85c0ad3033" /> <img width="63" height="62" alt="tumblr_m3q3ebNBwD1rodiav540" src="https://github.com/user-attachments/assets/6d1e0c4d-417e-441a-bdde-36093170295a" /> <img width="27" height="97" alt="tumblr_fc9619b1fe27151ffd96f0ffa98de2c3_3e53e7d7_540" src="https://github.com/user-attachments/assets/f0f02303-8c1f-4f89-a70b-636a806dfbad" />
+
 
 
 i very rarely accept friend requests or give out socials, dont take it personally <3
@@ -64,7 +65,6 @@ i have 5012 reasons why i love him <img width="20" height="20" alt="a95f79f4_ori
 
 <img width="150" height="84" alt="tumblr_33111db11a8f1d54405c044e15181bda_b8f4e8de_250" src="https://github.com/user-attachments/assets/5fa139a5-6c04-4d18-ab1d-750165f8841a" /> <img width="150" height="84" alt="tumblr_21e198d78a956f39077c064f5d080526_7423819f_250" src="https://github.com/user-attachments/assets/c31f5c3b-0b49-4665-ad5b-c03197077698" /> <img width="150" height="84" alt="tumblr_a576651f77872ac130fc22eb558e9e1d_0e62be5c_250" src="https://github.com/user-attachments/assets/fc32a20c-0839-46db-b485-88cd6107aaea" />
 
-<img width="20" height="20" alt="a95f79f4_original" src="https://github.com/user-attachments/assets/cbc0e6dc-5630-4a61-8741-1bc5f98f68a7" /> <img width="20" height="20" alt="tumblr_acda0398ea3901ed8f74a7258c2f7121_09247f04_75" src="https://github.com/user-attachments/assets/a16a87cb-8cbe-440d-8b7b-56a618f118f0" /> <img width="20" height="20" alt="ed31fb81" src="https://github.com/user-attachments/assets/52c3f1be-c0c1-418a-8877-d5dc87734b9e" />
 
 
 
