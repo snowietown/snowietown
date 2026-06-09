@@ -18,7 +18,8 @@
 
 i very rarely accept friend requests or give out socials, dont take it personally <3
 
-my strawpage is formatted best on computers only!
+my strawpage is formatted best on computers only! <img width="20" height="20" alt="tumblr_7f302b52e6d803e60af063364681299a_7626d5f3_75" src="https://github.com/user-attachments/assets/48c71360-df6f-45ad-aa1f-7957e3579fe2" />
+
 
 
 literally dont include me in dumb pt drama.. i literally js sit for funsies!
@@ -62,7 +63,10 @@ i have 5012 reasons why i love him
 
 <img width="150" height="84" alt="tumblr_33111db11a8f1d54405c044e15181bda_b8f4e8de_250" src="https://github.com/user-attachments/assets/5fa139a5-6c04-4d18-ab1d-750165f8841a" /> <img width="150" height="84" alt="tumblr_21e198d78a956f39077c064f5d080526_7423819f_250" src="https://github.com/user-attachments/assets/c31f5c3b-0b49-4665-ad5b-c03197077698" /> <img width="150" height="84" alt="tumblr_a576651f77872ac130fc22eb558e9e1d_0e62be5c_250" src="https://github.com/user-attachments/assets/fc32a20c-0839-46db-b485-88cd6107aaea" />
 
-<img width="128" height="128" alt="tumblr_f9ef4ef66b37ee3af805e3c20f77bf30_3db93382_250" src="https://github.com/user-attachments/assets/157ed974-567d-42c9-a90d-a3e594d5189f" />
+<img width="20" height="20" alt="a95f79f4_original" src="https://github.com/user-attachments/assets/cbc0e6dc-5630-4a61-8741-1bc5f98f68a7" /> <img width="20" height="20" alt="tumblr_acda0398ea3901ed8f74a7258c2f7121_09247f04_75" src="https://github.com/user-attachments/assets/a16a87cb-8cbe-440d-8b7b-56a618f118f0" /> <img width="20" height="20" alt="ed31fb81" src="https://github.com/user-attachments/assets/52c3f1be-c0c1-418a-8877-d5dc87734b9e" />
+
+
+
 
 
 
