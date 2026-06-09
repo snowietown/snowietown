@@ -23,7 +23,7 @@ my strawpage is formatted best on computers only!
 
 literally dont include me in dumb pt drama.. i literally js sit for funsies!
 
-and so, if i ever say/do smth u dont like, send me a whisper! & maybe we can be friends! 𖹭
+and so, if i ever say/do smth u dont like, send me a whisper! & maybe we can be friends! <img width="20" height="20" alt="tumblr_07b7989fb1c24a8e7a5389b64aca283a_f78f6bca_75" src="https://github.com/user-attachments/assets/0b075422-0f11-4172-af38-76dd6f14aa64" /> 𖹭
 
 
 
