@@ -1,3 +1,13 @@
+<img width="150" height="20" alt="IMG-1584" src="https://github.com/user-attachments/assets/85e0760f-5738-495e-99ed-968cc87ea4b9" /> <img width="220" height="29" alt="hatsune-miku-vocaloid" src="https://github.com/user-attachments/assets/00812b98-608b-4a9a-9a0c-d7b6ecab7d6f" /> <img width="150" height="20" alt="IMG-1583" src="https://github.com/user-attachments/assets/54146dfd-9ef6-46d4-9a7b-da16b6147eae" /> <img width="150" height="20" alt="47" src="https://github.com/user-attachments/assets/cf914984-fbdb-466b-b820-46f405f876ba" /> <img width="150" height="20" alt="e3" src="https://github.com/user-attachments/assets/13355573-93d6-4bc2-a230-84e3442a0395" /> <img width="150" height="20" alt="tumblr_e2ceb0f81d5dd89c9907300bafb4f775_c4484cd4_250" src="https://github.com/user-attachments/assets/24fdd501-bf97-4071-809f-d9e6262cff83" /> <img width="150" height="20" alt="frutigeraeropixelyblinkie" src="https://github.com/user-attachments/assets/52b341b4-afad-421c-b583-1f745c9eb84e" /> <img width="150" height="20" alt="g44" src="https://github.com/user-attachments/assets/621df4b5-5802-4627-8b16-31f560f31b9f" />
+
+
+
+
+
+
+
+
+
 i very rarely accept friend requests or give out socials, dont take it personally <3
 
 my strawpage is formatted best on computers only!
