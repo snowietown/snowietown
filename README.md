@@ -32,6 +32,11 @@ i have 5012 reasons why i love him
 
 <img width="99" height="55" alt="ddks4uc-432d772c-8cdc-486a-8d21-10be0e9fd7c9" src="https://github.com/user-attachments/assets/a607390d-6a8b-4e6b-b194-d14f98c0efa7" /> <img width="99" height="55" alt="dc2iibl-a7014485-d5a6-4154-ae08-a692b1595ab9" src="https://github.com/user-attachments/assets/abc8b17a-b8d1-437c-b6d1-fd5492b6784e" /> <img width="99" height="55" alt="da1mygv-595d1704-c607-4ffb-992a-98028652aa99" src="https://github.com/user-attachments/assets/0650b191-b007-45c2-b79d-964d790a480b" />
 
+<img width="99" height="56" alt="stamp_star_catcher" src="https://github.com/user-attachments/assets/d597d519-2eee-4cf0-88cd-d20ff6481116" /> <img width="99" height="56" alt="7th" src="https://github.com/user-attachments/assets/a2115743-3986-40e1-8d7f-3d0e94ab3021" /> <img width="99" height="56" alt="stamp_sky_wishes" src="https://github.com/user-attachments/assets/36ba9c36-4d55-4242-aaa3-dcc0fa24f802" />
+
+
+
+
 <img width="99" height="56" alt="nintedowii" src="https://github.com/user-attachments/assets/9a54ff2e-f876-4dc9-b6ec-12e933819bb9" /> <img width="99" height="56" alt="tumblr_26e8c6e5dfd08562c411a0776d796a75_9f8fd841_100" src="https://github.com/user-attachments/assets/831268e1-6cb9-4b41-bb28-c065428c974a" /> <img width="99" height="56" alt="icollectplushies" src="https://github.com/user-attachments/assets/af99cb5c-e89e-49e9-8fa5-d1483853705d" />
 
 <img width="99" height="56" alt="d83268ae_original" src="https://github.com/user-attachments/assets/e9550db2-6ebb-4f42-a7fc-cbf063bd205c" /> <img width="99" height="56" alt="hummingmint" src="https://github.com/user-attachments/assets/9b27ac51-ac17-4cd8-b1d0-debca0337a8e" /> <img width="98" height="55" alt="sugarbunnies" src="https://github.com/user-attachments/assets/3c921880-924b-492c-a505-9ccafbe07968" />
