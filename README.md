@@ -13,7 +13,8 @@
 
 i very rarely accept friend requests or give out socials, dont take it personally <3
 
-my strawpage is formatted best on computers only!
+my strawpage is formatted best on computers only! <img width="58" height="48" alt="tumblr_m3q2ulXb0b1rodiav540" src="https://github.com/user-attachments/assets/a9c6cd72-b821-43df-85c9-1e85c0ad3033" />
+
 
 literally dont include me in dumb pt drama.. i literally js sit for funsies!
 
