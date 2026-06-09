@@ -35,7 +35,7 @@ and so, if i ever say/do smth u dont like, send me a whisper! & maybe we can be 
 
 
 
-i have 5012 reasons why i love him <img width="20" height="20" alt="tumblr_acda0398ea3901ed8f74a7258c2f7121_09247f04_75" src="https://github.com/user-attachments/assets/3fdb1866-53c4-4644-a984-a6049d5a00d2" />
+i have 5012 reasons why i love him <img width="20" height="20" alt="a95f79f4_original" src="https://github.com/user-attachments/assets/78eef431-27a7-4307-8b15-0a39503c36bf" />
 
 
 
