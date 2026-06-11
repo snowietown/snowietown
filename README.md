@@ -71,7 +71,7 @@ i have 5012 reasons why i love him <img width="20" height="20" alt="a95f79f4_ori
 
 <img width="150" height="84" alt="tumblr_33111db11a8f1d54405c044e15181bda_b8f4e8de_250" src="https://github.com/user-attachments/assets/5fa139a5-6c04-4d18-ab1d-750165f8841a" /> <img width="150" height="84" alt="tumblr_21e198d78a956f39077c064f5d080526_7423819f_250" src="https://github.com/user-attachments/assets/c31f5c3b-0b49-4665-ad5b-c03197077698" /> <img width="150" height="84" alt="tumblr_a576651f77872ac130fc22eb558e9e1d_0e62be5c_250" src="https://github.com/user-attachments/assets/fc32a20c-0839-46db-b485-88cd6107aaea" />
 
-,, if ur the person who keeps putting my pt skins on a certain discord server, pls stop. its very sweet, but i am too much of a lurker to not get anxious when saying my thank yous to the ppl who compliment them... </3
+,, if ur the person who keeps putting my pt skins on a certain discord server, pls stop. its very sweet, but i'm too much of a lurker to not get super anxious when saying my thank yous to the ppl who compliment them in chat... </3
 
 
 
