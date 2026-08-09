@@ -19,7 +19,7 @@
 
 i very rarely accept friend requests or give out socials, dont take it personally <3
 
-my strawpage is formatted best on computers only! <img width="20" height="20" alt="tumblr_c4b6e200bba83c8499694357c5fdd768_8d55cc43_75" src="https://github.com/user-attachments/assets/5ee767d2-bf67-46d7-a0bd-485500393ffe" />
+ <img width="20" height="20" alt="tumblr_c4b6e200bba83c8499694357c5fdd768_8d55cc43_75" src="https://github.com/user-attachments/assets/5ee767d2-bf67-46d7-a0bd-485500393ffe" />
 
 
 
