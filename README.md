@@ -19,11 +19,10 @@
 
 i very rarely accept friend requests or give out socials, dont take it personally <3
 
- <img width="20" height="20" alt="tumblr_c4b6e200bba83c8499694357c5fdd768_8d55cc43_75" src="https://github.com/user-attachments/assets/5ee767d2-bf67-46d7-a0bd-485500393ffe" />
-
 
 
 literally dont include me in dumb pt drama.. i literally js sit for funsies!
+ <img width="20" height="20" alt="tumblr_c4b6e200bba83c8499694357c5fdd768_8d55cc43_75" src="https://github.com/user-attachments/assets/5ee767d2-bf67-46d7-a0bd-485500393ffe" />
 
 and so, if i ever say/do smth u dont like, send me a whisper! & maybe we can be friends! <img width="20" height="20" alt="tumblr_07b7989fb1c24a8e7a5389b64aca283a_f78f6bca_75" src="https://github.com/user-attachments/assets/0b075422-0f11-4172-af38-76dd6f14aa64" /> 𖹭
 
