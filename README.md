@@ -18,6 +18,7 @@
 
 
 i very rarely accept friend requests or give out socials, dont take it personally <3
+
 (tho im always up for a good chat! pls say hi!♡)
 
 
