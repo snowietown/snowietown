@@ -31,12 +31,7 @@ and so, if i ever say/do smth u dont like, send me a whisper! & maybe we can be 
 
 
 
-
-
-
-
-
-_i may type slow at times, so please be patient with me ♡_
+<sub>***i may type slow at times, so please be patient with me ♡***</sub> 
 
 
 
